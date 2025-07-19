@@ -43,6 +43,10 @@
 
 - 运行环境：Windows
 
+## 联系方式
+
+- [电报群](https://t.me/+PFnv9xHg9-FkNjU1)
+
 ------
 
 PS：都是用ai写的，主打能用就行
